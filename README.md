@@ -30,4 +30,14 @@ then we are go to auditorium
 surjit singh grewal sir give a amazing lecture about college and interaction 
 then lakhvir sir give a lecture about cml and sawayam and nptel courses 
 then time is already more so dhingra sir no more talking with us but he is also amazing personality 
-
+#Day7 (7aug)
+first lecture in auditorium 9:30am to 10:30am amit kamra sir  
+second lecture in auditorium 10:30 am to 11:30 am by perminder singh
+third lecture in auditorium 11:30 am to 12:30 pm by randhir sir 
+then break from 12:30pm to 1:30 pm 
+then 1:30 pm to 2:30 pm BEEE lecture 
+then 2:30 pm to 3:30 pm maths lecture by gagan mam 
+#Day 8 (8aug)
+morning lecture of mellits by shaffy makkar mam from 9:30 am to 11:00 am 
+then second lecture of mathematics by gagan mam from 11:00 am to 12:00 pm 
+then complete 8 days of induction 
